@@ -1,0 +1,1 @@
+1998 yılında Google ilk versiyon sürümünün görüntüsü üzerine çalışılmıştır.
